@@ -1,0 +1,234 @@
+# 📞 Telephonic Interview Guide - PrimePathway
+
+## Duration: 15-20 minutes
+
+**Purpose:** Initial screening, basic qualification check, and motivation assessment
+
+---
+
+## 1️⃣ Tell Me About Yourself
+
+### Your Answer (30-45 seconds)
+
+*"Good morning/afternoon! I'm Gaurav Kumar Mehta, currently working as a Sales Representative at LawSikho, an EdTech company focused on legal education and training. I've been with them since March 2025, where I manage high-ticket B2B2C sales for their Independent Director certification program.*
+
+*Before this, I completed a sales internship at Leads Group from October 2024 to February 2025, where I conducted 80-120 targeted conversations daily with students, parents, and school leaders, maintaining an 85% client re-engagement rate.*
+
+*I'm an engineering student from JIS College of Engineering, graduating in 2026. What drives me in sales is the combination of building meaningful relationships and achieving tangible results through strategic communication.*
+
+*In my free time, I enjoy staying updated on sales methodologies and market trends. I'm particularly excited about this opportunity at PrimePathway because it aligns perfectly with my passion for career consulting and helping professionals achieve their goals."*
+
+**Key Points to Hit:**
+
+- Current role (LawSikho - Sales Representative)
+- Previous experience (Leads Group internship)
+- Education (briefly)
+- Why sales/motivation
+- Hobbies (professional growth oriented)
+
+---
+
+## 2️⃣ Why Do You Want to Work in Sales?
+
+### Your Answer (20-30 seconds)
+
+*"I'm genuinely passionate about sales because it combines three things I excel at: building relationships, solving problems, and driving measurable results. In my current role at LawSikho, I've seen firsthand how effective sales isn't just about closing deals—it's about understanding client needs and providing solutions that genuinely add value to their careers.*
+
+*I love the challenge of converting objections into opportunities and the satisfaction of helping clients make decisions that positively impact their professional growth. Sales also offers continuous learning and growth opportunities, which keeps me motivated. The dynamic nature of sales, especially in the career counseling space, excites me because every conversation is unique and presents new challenges."*
+
+**Key Themes:**
+
+- Relationship building
+- Problem-solving mindset
+- Results-driven approach
+- Continuous growth opportunity
+
+---
+
+## 3️⃣ What Are Your Short-term and Long-term Goals?
+
+### Your Answer (30-40 seconds)
+
+**Short-term Goals (1-2 years):**
+*"In the short term, I want to master the art of consultative selling in the career counseling space. My goal is to consistently exceed my quarterly targets, develop deep expertise in understanding client career transitions, and become a top performer in the sales team. I also want to refine my skills in CRM tools and data-driven sales strategies to improve my conversion rates from 90% to even higher levels."*
+
+**Long-term Goals (3-5 years):**
+*"Long-term, I see myself growing into a leadership role—ideally as a Sales Head or Marketing Head. I want to build and mentor high-performing sales teams, develop sales playbooks and strategies that drive organizational growth, and contribute to scaling the business. I'm particularly interested in combining sales leadership with strategic business development to create sustainable growth models."*
+
+**Key Points:**
+
+- Both goals are sales-focused
+- Short-term: Performance & skill development
+- Long-term: Leadership in sales/marketing
+- Demonstrates ambition aligned with company growth
+
+---
+
+## 4️⃣ How Do You Handle Rejection?
+
+### Your Answer (25-35 seconds)
+
+*"I view rejection as a learning opportunity rather than a setback. In my current role at LawSikho, I make over 100 dials daily, and naturally, not every call converts. I've learned that rejection often isn't personal—it could be timing, budget constraints, or simply not the right fit.*
+
+*My approach is to analyze why the rejection happened: Was it an objection I couldn't overcome? Was the timing wrong? Then I refine my pitch accordingly. I also maintain detailed notes in our CRM so if a prospect says 'not now,' I can follow up at the right time with a better understanding of their situation.*
+
+*Most importantly, I don't let rejection affect my energy for the next call. I maintain a positive mindset and remember that in sales, every 'no' brings me closer to a 'yes.' My 90% conversion rate from discovery to roadmap calls is proof that persistence and learning from rejection pays off."*
+
+**Key Themes:**
+
+- Resilience and positive mindset
+- Learning and improvement focus
+- Data-driven approach (CRM tracking)
+- Don't take it personally
+
+---
+
+## 5️⃣ What Is Your Daily Work Routine?
+
+### Your Answer (30-40 seconds)
+
+*"At LawSikho, my day is highly structured and metrics-driven:*
+
+*I start by reviewing my pipeline in Sell Squad CRM and prioritizing follow-ups from the previous day. Then I conduct 100-150 outbound dials daily to qualified professionals with 15-20 years of experience who are interested in becoming Independent Directors or consultants.*
+
+*Out of these, I typically have 7-8 meaningful conversations lasting 20+ minutes each. These are discovery calls where I understand their career goals, challenges, and readiness for the program.*
+
+*After discovery, I schedule roadmap calls where I present a personalized plan showing how our Independent Director certification fits their goals. Finally, I conduct closure calls to address final concerns and complete enrollment.*
+
+*I maintain detailed notes in our CRM after every interaction and analyze my daily metrics to identify improvement areas. I also dedicate 30 minutes daily to learning new objection-handling techniques and sales strategies."*
+
+**Key Metrics to Mention:**
+
+- 100-150 dials/day
+- 7-8 quality conversations (20+ min)
+- Three-stage process: Discovery → Roadmap → Closure
+- CRM management
+- Continuous improvement
+
+---
+
+## 6️⃣ Why PrimePathway?
+
+### Your Answer (25-30 seconds)
+
+*"PrimePathway's mission of helping working professionals and students navigate their career paths resonates deeply with my experience and passion. Having worked in the EdTech and career development space, I understand the impact that quality career counseling can have on someone's professional trajectory.*
+
+*What excites me most is PrimePathway's structured approach to career consulting and the opportunity to work with diverse clients—from students to experienced professionals. The company's focus on personalized guidance aligns perfectly with my consultative sales approach.*
+
+*Additionally, the growth opportunities here are aligned with my long-term goal of becoming a Sales Head. Being part of a company that's actively hiring and expanding means I can grow alongside the organization."*
+
+**Key Points:**
+
+- Mission alignment
+- Relevant experience
+- Growth opportunity
+- Genuine interest in career counseling
+
+---
+
+## 7️⃣ What Is Your Expected Salary?
+
+### Your Answer (15-20 seconds)
+
+*"Based on my current experience and the market standards for sales roles with proven track records, I'm looking for a CTC in the range of ₹5,50,000 to ₹7,00,000 annually. However, I'm flexible and open to discussing a comprehensive package including performance-based incentives, as I'm confident in my ability to exceed targets and deliver strong ROI."*
+
+**Key Strategy:**
+
+- State a range (aligned with both job postings)
+- Show flexibility
+- Emphasize performance-based mindset
+- Confidence in delivering results
+
+---
+
+## 8️⃣ When Can You Start?
+
+### Your Answer (10-15 seconds)
+
+*"I can start immediately! I'm eager to contribute to PrimePathway's growth and begin making an impact. If any formalities or documentation are needed, I can complete them promptly to ensure a smooth onboarding process."*
+
+**Key Points:**
+
+- Immediate availability
+- Enthusiasm
+- Professional readiness
+
+---
+
+## 9️⃣ Do You Have Any Questions for Us?
+
+### Your Questions to Ask (Choose 2-3)
+
+1. **About the Role:**
+   *"What does success look like in the first 30, 60, and 90 days for this position?"*
+
+2. **About Training:**
+   *"What kind of onboarding and training program does PrimePathway offer for new sales team members?"*
+
+3. **About Growth:**
+   *"What are the typical career progression paths for high performers in the sales team?"*
+
+4. **About Metrics:**
+   *"What are the key performance metrics the team is currently focused on achieving?"*
+
+5. **About Tools:**
+   *"What CRM and sales tools does PrimePathway use, and is there training provided?"*
+
+**Choose questions that show:**
+
+- Interest in success and performance
+- Long-term commitment
+- Eagerness to contribute
+
+---
+
+## 🎯 Telephonic Interview Quick Tips
+
+### Do's ✅
+
+- Speak clearly and at a moderate pace
+- Smile while talking (it shows in your voice)
+- Have your resume in front of you for reference
+- Be in a quiet location with good network
+- Keep answers concise (20-45 seconds each)
+- Show enthusiasm and energy
+- Use specific numbers and metrics
+- End with a positive closing statement
+
+### Don'ts ❌
+
+- Don't ramble or give lengthy answers
+- Don't speak negatively about current/past employers
+- Don't interrupt the interviewer
+- Don't use filler words excessively (um, uh, like)
+- Don't sound rehearsed or robotic
+- Don't ask about salary first
+- Don't be passive—show energy!
+
+---
+
+## 📝 Additional Quick-Fire Questions
+
+**Q: Why are you leaving your current role?**  
+*A: "I'm not leaving due to any dissatisfaction—LawSikho has been an excellent learning ground. However, I'm looking for an opportunity to work in a more comprehensive career consulting environment like PrimePathway, where I can impact a broader range of clients and grow into leadership roles. The scope and growth potential here align better with my long-term career aspirations."*
+
+**Q: How soon can you join?**  
+*A: "I can join immediately or within a short notice period. I'm ready to transition smoothly and start contributing to PrimePathway's goals right away."*
+
+**Q: Are you applying to other companies?**  
+*A: "I'm exploring a few opportunities to ensure I find the right fit, but PrimePathway stands out because of its strong reputation in career consulting and alignment with my skills and goals. This role is definitely my top priority."*
+
+**Q: What do you know about PrimePathway?**  
+*A: "PrimePathway is a career consulting and job-hunting services company with offices in Mumbai and Pune. You specialize in helping working professionals and students explore international opportunities and provide personalized counseling and result-driven job-hunting support. I'm particularly impressed by your structured approach to career guidance and the positive impact you're making in helping people achieve their career goals abroad."*
+
+---
+
+## 🔑 Key Success Mantras
+
+1. **Be Concise:** Telephonic interviews are shorter—keep answers tight
+2. **Show Energy:** Your enthusiasm must come through your voice
+3. **Use Numbers:** Metrics make your experience tangible (100 dials, 90% conversion)
+4. **Stay Positive:** Frame everything positively and professionally
+5. **Ask Smart Questions:** Show you're already thinking about success in the role
+
+**Good luck! You've got this! 🚀**
