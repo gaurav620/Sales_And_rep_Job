@@ -12,23 +12,21 @@
 
 ### Your Answer (60-90 seconds)
 
-*"Good morning/afternoon! Thank you for this opportunity. I'm Gaurav Kumar Mehta, a results-driven sales professional currently working at LawSikho, a leading EdTech company focused on legal education and training.*
+*"Good morning/afternoon! Thank you for this opportunity. I'm Gaurav Kumar Mehta, a sales professional with proven experience in high-ticket B2B2C sales within the EdTech and career development sector.*
 
-*In my current role as Sales Representative since March 2025, I specialize in high-ticket B2B2C sales, specifically selling our Independent Director certification program to experienced professionals with 15-20 years of industry experience. These are individuals looking to transition into board roles or consultancy positions.*
+*Most recently, I worked as a Sales Representative at LawSikho from March to December 2025, where I specialized in selling their Independent Director certification program to experienced professionals with 15-20 years of industry experience. These were individuals seeking to transition into board roles or consultancy positions.*
 
-*What makes my role unique is the complexity of the sale—I'm not just selling a course; I'm selling a career transformation. Each deal ranges from ₹60,000 to ₹80,000, so it requires deep consultative selling, trust-building, and a thorough understanding of career transitions.*
+*The role involved consultative selling—each deal ranged from ₹60,000 to ₹80,000, requiring trust-building and deep understanding of career transitions. My daily process was highly structured: I conducted 100-150 outbound dials using Sell Squad CRM and held 7-8 in-depth conversations of 20+ minutes each. I followed a three-stage sales process—Discovery Call, Roadmap Call, and Closure Call—achieving a 90% conversion rate from discovery to roadmap.*
 
-*My daily process is highly structured: I make 100-150 outbound dials using our CRM, Sell Squad, and conduct 7-8 in-depth conversations of 20+ minutes each. My sales process follows three stages—Discovery Call, Roadmap Call, and Closure Call—which has helped me achieve a 90% conversion rate from discovery to roadmap.*
+*Prior to LawSikho, I worked as a Sales Representative Intern at Leads Group from October 2024 to February 2025, handling educational consulting and technology sales. I conducted 80-120 targeted conversations daily with students, parents, and school leaders, maintained an 85% client re-engagement rate, and closed 10+ high-ticket enrollments worth ₹6-8 lakhs.*
 
-*Before LawSikho, I worked as a Sales Representative Intern at Leads Group from October 2024 to February 2025. There, I was responsible for educational consulting and technology sales, conducting 80-120 targeted conversations daily with students, parents, and school leaders. I maintained an 85% client re-engagement rate and successfully closed 10+ high-ticket enrollments worth ₹6-8 lakhs.*
+*I'm in my final year at JIS College of Engineering, graduating in 2026. During my time there, I served as Marketing Lead for our annual cultural fest, which developed my leadership and stakeholder management skills.*
 
-*I'm currently in my final year at JIS College of Engineering, graduating in 2026, where I also served as Marketing Lead for our annual cultural fest, which taught me valuable skills in leadership and stakeholder management.*
+*What drives me in sales is the combination of relationship-building, problem-solving, and delivering measurable results. I'm particularly interested in career consulting because I value helping professionals make informed decisions about their growth.*
 
-*What drives me in sales is the perfect blend of relationship-building, problem-solving, and achieving measurable results. I'm particularly passionate about career consulting because I genuinely enjoy helping people make informed decisions about their professional growth.*
+*I've also earned certifications in HubSpot Sales, Salesforce Fundamentals, and Google Analytics to continuously develop my skills.*
 
-*Outside work, I stay updated on sales methodologies, market trends, and I've earned certifications in HubSpot Sales, Salesforce Fundamentals, and Google Analytics to continuously improve my craft.*
-
-*I'm excited about PrimePathway because your mission of helping professionals navigate career transitions aligns perfectly with my experience and passion. I see tremendous potential to contribute to your growth while developing toward my long-term goal of becoming a Sales Head."*
+*I'm excited about PrimePathway because your mission of helping professionals navigate career transitions aligns with my experience. I see strong potential to contribute to your growth while advancing toward my goal of becoming a Sales Head."*
 
 **Structure to Follow:**
 
@@ -45,9 +43,9 @@
 
 ### Your Answer (45-60 seconds)
 
-*"I'm genuinely passionate about sales because it's one of the few careers where your impact is immediately visible and measurable. Three things drive my love for sales:*
+*"I'm passionate about sales because it's one of the few careers where your impact is immediately measurable. Three things drive me:*
 
-*First, relationship-building. I thrive on connecting with people, understanding their challenges, and building trust. In my current role, I work with senior executives—VPs, Founders, CXOs—who need more than a sales pitch; they need a trusted advisor. Building those relationships and seeing them succeed after taking my guidance is incredibly fulfilling.*
+*First, relationship-building. I excel at connecting with people, understanding their challenges, and building trust. At LawSikho, I worked with senior executives—VPs, Founders, CXOs—who needed more than a sales pitch; they needed a trusted advisor. Building those relationships and seeing them succeed was highly fulfilling.*
 
 *Second, problem-solving. Sales, especially consultative selling, is about diagnosing problems and presenting tailored solutions. Every client has unique career goals, constraints, and concerns. Navigating those conversations, overcoming objections, and finding the right fit is like solving a complex puzzle, and I love that challenge.*
 

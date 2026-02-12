@@ -32,9 +32,9 @@
 
 ### Your Answer (20-30 seconds)
 
-*"I'm genuinely passionate about sales because it combines three things I excel at: building relationships, solving problems, and driving measurable results. In my current role at LawSikho, I've seen firsthand how effective sales isn't just about closing deals—it's about understanding client needs and providing solutions that genuinely add value to their careers.*
+*"I'm drawn to sales because it directly combines relationship-building, problem-solving, and measurable results. During my time at LawSikho, I learned that effective sales isn't just about closing deals—it's about understanding client needs and aligning solutions that add real value to their careers.*
 
-*I love the challenge of converting objections into opportunities and the satisfaction of helping clients make decisions that positively impact their professional growth. Sales also offers continuous learning and growth opportunities, which keeps me motivated. The dynamic nature of sales, especially in the career counseling space, excites me because every conversation is unique and presents new challenges."*
+*I enjoy converting objections into opportunities and helping clients make informed decisions. Sales offers continuous learning, and the dynamic nature of the career counseling space appeals to me because every conversation presents unique challenges."*
 
 **Key Themes:**
 
@@ -87,15 +87,15 @@
 
 ### Your Answer (30-40 seconds)
 
-*"At LawSikho, my day is highly structured and metrics-driven:*
+*"At LawSikho, my day was highly structured and metrics-driven:*
 
-*I start by reviewing my pipeline in Sell Squad CRM and prioritizing follow-ups from the previous day. Then I conduct 100-150 outbound dials daily to qualified professionals with 15-20 years of experience who are interested in becoming Independent Directors or consultants.*
+*I would start by reviewing my pipeline in Sell Squad CRM and prioritizing follow-ups. Then I'd conduct 100-150 outbound dials daily to qualified professionals with 15-20 years of experience who were interested in becoming Independent Directors or consultants.*
 
-*Out of these, I typically have 7-8 meaningful conversations lasting 20+ minutes each. These are discovery calls where I understand their career goals, challenges, and readiness for the program.*
+*Out of these, I typically had 7-8 meaningful conversations lasting 20+ minutes each. These were discovery calls where I'd understand their career goals, challenges, and program readiness.*
 
-*After discovery, I schedule roadmap calls where I present a personalized plan showing how our Independent Director certification fits their goals. Finally, I conduct closure calls to address final concerns and complete enrollment.*
+*After discovery, I'd schedule roadmap calls to present a personalized plan showing how the certification aligned with their goals. Finally, I'd conduct closure calls to address concerns and complete enrollment.*
 
-*I maintain detailed notes in our CRM after every interaction and analyze my daily metrics to identify improvement areas. I also dedicate 30 minutes daily to learning new objection-handling techniques and sales strategies."*
+*I maintained detailed CRM notes after every interaction and analyzed daily metrics to identify improvement areas. I also dedicated time to learning objection-handling techniques and sales strategies."*
 
 **Key Metrics to Mention:**
 
