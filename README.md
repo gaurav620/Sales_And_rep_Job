@@ -11,13 +11,20 @@ Complete interview preparation materials for **PrimePathway** positions:
 
 ### Interview Guides
 
-1. **[Telephonic_Interview_Guide.md](./Telephonic_Interview_Guide.md)**
+1. **[AI_Interview_10min_Guide.md](./AI_Interview_10min_Guide.md)** ⚡ **NEW**
+   - 10-minute AI-powered video interview
+   - Ultra-concise 30-50 second answers
+   - AI interview specific tips
+   - Camera/technical setup guide
+   - **Deadline: 13th Feb 2026, 11:57 AM**
+
+2. **[Telephonic_Interview_Guide.md](./Telephonic_Interview_Guide.md)**
    - Initial screening questions
    - Quick background verification
    - Basic motivation and goal assessment
    - 15-20 minute format
 
-2. **[Google_Meet_Interview_Guide.md](./Google_Meet_Interview_Guide.md)**
+3. **[Google_Meet_Interview_Guide.md](./Google_Meet_Interview_Guide.md)**
    - Detailed behavioral questions
    - In-depth sales scenario discussions
    - Technical sales process questions
