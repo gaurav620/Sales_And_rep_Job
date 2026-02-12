@@ -10,21 +10,21 @@
 
 ### Your Answer (30-45 seconds)
 
-*"Good morning/afternoon! I'm Gaurav Kumar Mehta, currently working as a Sales Representative at LawSikho, an EdTech company focused on legal education and training. I've been with them since March 2025, where I manage high-ticket B2B2C sales for their Independent Director certification program.*
+*"Good morning/afternoon! I'm Gaurav Kumar Mehta, a sales professional with hands-on experience in high-ticket B2B2C sales within the EdTech sector.*
 
-*Before this, I completed a sales internship at Leads Group from October 2024 to February 2025, where I conducted 80-120 targeted conversations daily with students, parents, and school leaders, maintaining an 85% client re-engagement rate.*
+*Most recently, I worked as a Sales Representative at LawSikho from March to December 2025, where I specialized in selling their Independent Director certification program—a high-value product ranging from ₹60,000 to ₹80,000. I consistently managed 100+ outbound calls daily and maintained a 90% conversion rate through a structured three-stage sales process.*
 
-*I'm an engineering student from JIS College of Engineering, graduating in 2026. What drives me in sales is the combination of building meaningful relationships and achieving tangible results through strategic communication.*
+*Prior to that, I completed a sales internship at Leads Group, conducting 80-120 targeted conversations daily with students, parents, and school leaders, achieving an 85% client re-engagement rate.*
 
-*In my free time, I enjoy staying updated on sales methodologies and market trends. I'm particularly excited about this opportunity at PrimePathway because it aligns perfectly with my passion for career consulting and helping professionals achieve their goals."*
+*I'm currently in my final year at JIS College of Engineering, graduating in 2026. I'm actively seeking opportunities where I can leverage my consultative sales skills and contribute to organizational growth. PrimePathway's focus on career consulting aligns perfectly with my experience in helping professionals make informed career decisions."*
 
 **Key Points to Hit:**
 
-- Current role (LawSikho - Sales Representative)
-- Previous experience (Leads Group internship)
-- Education (briefly)
-- Why sales/motivation
-- Hobbies (professional growth oriented)
+- Professional sales background
+- Previous role at LawSikho (past tense)
+- Leads Group internship
+- Education status
+- Job-seeking clarity
 
 ---
 
@@ -68,11 +68,11 @@
 
 ### Your Answer (25-35 seconds)
 
-*"I view rejection as a learning opportunity rather than a setback. In my current role at LawSikho, I make over 100 dials daily, and naturally, not every call converts. I've learned that rejection often isn't personal—it could be timing, budget constraints, or simply not the right fit.*
+*"I view rejection as a learning opportunity rather than a setback. At LawSikho, I made over 100 dials daily, and naturally, not every call converted. I learned that rejection often isn't personal—it could be timing, budget constraints, or simply not the right fit.*
 
-*My approach is to analyze why the rejection happened: Was it an objection I couldn't overcome? Was the timing wrong? Then I refine my pitch accordingly. I also maintain detailed notes in our CRM so if a prospect says 'not now,' I can follow up at the right time with a better understanding of their situation.*
+*My approach was to analyze why the rejection happened: Was it an objection I couldn't overcome? Was the timing wrong? Then I'd refine my pitch accordingly. I maintained detailed notes in the CRM so if a prospect said 'not now,' I could follow up at the right time with better understanding.*
 
-*Most importantly, I don't let rejection affect my energy for the next call. I maintain a positive mindset and remember that in sales, every 'no' brings me closer to a 'yes.' My 90% conversion rate from discovery to roadmap calls is proof that persistence and learning from rejection pays off."*
+*Most importantly, I didn't let rejection affect my energy for the next call. I maintained a positive mindset and remembered that in sales, every 'no' brings me closer to a 'yes.' My 90% conversion rate from discovery to roadmap calls is proof that persistence and learning from rejection pays off."*
 
 **Key Themes:**
 
@@ -209,8 +209,8 @@
 
 ## 📝 Additional Quick-Fire Questions
 
-**Q: Why are you leaving your current role?**  
-*A: "I'm not leaving due to any dissatisfaction—LawSikho has been an excellent learning ground. However, I'm looking for an opportunity to work in a more comprehensive career consulting environment like PrimePathway, where I can impact a broader range of clients and grow into leadership roles. The scope and growth potential here align better with my long-term career aspirations."*
+**Q: Why are you looking for a new opportunity?**  
+*A: "After gaining valuable experience at LawSikho and successfully achieving my targets, I'm looking for the next step in my career. I'm specifically interested in PrimePathway because of your comprehensive approach to career consulting and the opportunity to impact a broader range of clients. The scope and growth potential here align perfectly with my long-term goal of becoming a Sales Head."*
 
 **Q: How soon can you join?**  
 *A: "I can join immediately or within a short notice period. I'm ready to transition smoothly and start contributing to PrimePathway's goals right away."*
